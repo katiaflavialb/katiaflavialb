@@ -13,6 +13,8 @@
 
 - ⚡ Curiosity, **I think I'm a little crazy sometimes, full of phases like the moon....lol!!!**
 
+- I'm enjoying these photos, they told me I could be a model.. I'll post something about it here later.... goooood!!!
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/katiaflavialb" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="katiaflavialb" height="30" width="40" /></a>
