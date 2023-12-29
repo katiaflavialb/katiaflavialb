@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **katiaflavialb@outlook.com.br**
 
-- ⚡ Fun fact **I think I am middle crazy, lmao!!!**
+- ⚡ Curiosity, **I think I'm a little crazy sometimes, full of phases like the moon....lol!!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
